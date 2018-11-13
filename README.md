@@ -1,2 +1,2 @@
-# Gapongli-Sid-DanielPadilla
+# Gapongli-Sid
 1E Gapongli, Sid B.
